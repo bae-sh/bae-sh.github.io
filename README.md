@@ -1,1 +1,0 @@
-# bae-sh.github.io
